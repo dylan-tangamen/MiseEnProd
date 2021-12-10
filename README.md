@@ -1,2 +1,2 @@
 # MiseEnProd
-Bonjour, je m'appelle Dylan 
+Bonjour, nous nous appelons Théo et Dylan
